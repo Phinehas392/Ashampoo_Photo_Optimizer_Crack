@@ -1,0 +1,1 @@
+# Ashampoo_Photo_Optimizer_Crack
